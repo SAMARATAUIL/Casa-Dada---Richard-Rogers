@@ -27,5 +27,7 @@ Maquete
 
 ![Maquete](https://github.com/SAMARATAUIL/Casa-Dada---Richard-Rogers/assets/162484325/cc5a10b1-ce0e-4d7d-b895-13e0572fcdee)
 ![Maquete ](https://github.com/SAMARATAUIL/Casa-Dada---Richard-Rogers/assets/162484325/c7971f31-8132-42f2-9ce7-23e4787d4ca0)
+
 ![Maquete   ](https://github.com/SAMARATAUIL/Casa-Dada---Richard-Rogers/assets/162484325/75853ae1-2aae-4d92-8091-c5a94af65a3c)
+
 ![Maquete  ](https://github.com/SAMARATAUIL/Casa-Dada---Richard-Rogers/assets/162484325/58784472-488a-41f9-9e24-8a37219cc5ba)
